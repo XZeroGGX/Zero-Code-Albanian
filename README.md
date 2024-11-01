@@ -1,0 +1,2 @@
+# Zero-Code-Albanian
+Albanian :)
